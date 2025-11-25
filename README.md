@@ -1,1 +1,2 @@
-# se2ndDude.github.io
+# USE IT HOWEVER U WANT
+# PAKE AJA TERSERAH
